@@ -1,2 +1,0 @@
-# minseosong
-수업
